@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Maddy Shea
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning animation
+- 🌱 I’m currently learning incrementing shortcuts
 - 💞️ I’m looking to collaborate on animation
 - 📫 How to reach me is my email ThornXboxMad@gmail.com
 -  I'm ten years old
